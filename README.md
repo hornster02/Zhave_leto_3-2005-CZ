@@ -1,6 +1,6 @@
 MYABANDONWARE - Disc Image lang5 (2024-12)
 <br/>
-Velikost 70MB https://drive.google.com/drive/folders/1QK6QwhDXmF8KAhrKsx4NIF0hsPA9TID_
+Velikost 70MB [https://drive.google.com/drive/folders/1QK6QwhDXmF8KAhrKsx4NIF0hsPA9TID_]
 
 Postup
 <br/>
